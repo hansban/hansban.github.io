@@ -1,6 +1,8 @@
 ## Welcome to Hannah's page
 
-You can use the [editor on GitHub](https://github.com/hansban/hansban.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
+Here, I will be sharing a few of my favorite reads. this will mostly be a mixture of manhuas, manhwas, and mangas but not limited to but first...
+
+## What is the difference between manhua, manhwa and manga?
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
