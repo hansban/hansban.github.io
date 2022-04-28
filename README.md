@@ -1,6 +1,6 @@
-## Welcome to Hannah's page
+### Welcome to Hannah's page
 
-Here, I will be sharing a few of my favorite reads. this will mostly be a mixture of manhuas, manhwas, and mangas but not limited to but first...
+Here, I will be sharing a few of my favorite reads. These are absolutely amazing and I really recommend these. It's not for everyone but to those who might be intrigued with these then, have fun :) This will mostly be a mixture of manhuas, manhwas, and mangas but not limited to but first...
 
 ## What is the difference between manhua, manhwa and manga?
 
