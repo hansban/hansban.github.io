@@ -12,11 +12,11 @@ The image below is a beautiful illustration I found on twitter which was inspire
 
 @headBONDmeLWJ on twitter!! ![alt text](https://user-images.githubusercontent.com/104568096/165880979-1e87eabb-504b-4780-a7c5-e52ad06a65df.jpg)
 
-Honestly, I cannot stress how much I love this novel. It is so beautiful and the emotions are so strong and the story is confusing at first but it is so worth it to understand. Understanding the different symbolisms of things makes it even better too!! The other books of this author are also so amazing!! If you wish to know more, click [here](https://modao-zushi.fandom.com/wiki/Grandmaster_of_Demonic_Cultivation_Wiki)
+Honestly, I cannot stress how much I love this novel. It is so beautiful and the emotions are so strong and the story is confusing at first but it is so worth it to understand. Understanding the different symbolisms of things makes it even better too!! The other books of this author are also so amazing!! If you wish to know more, click [here](https://modao-zushi.fandom.com/wiki/Grandmaster_of_Demonic_Cultivation_Wiki) >:DD
 
 
 ### Eleceed 
-This is so cool, all I can say. Our main lead is so adorable and good-hearted, there are many cool characters with equally as cool abilities, a great mentor-student relationship, and most importantly there are cute cats.
+This is so cool, hands down all I can say. Our main lead is so adorable and good-hearted, there are many cool characters with equally as cool abilities, a great mentor-student relationship, and most importantly there are cute cats. What else would you want? Click [here](https://eleceed.fandom.com/wiki/Eleceed_Wiki) if you're interested >:DD
 
 ![alt text](https://user-images.githubusercontent.com/104568096/165913058-68aab720-6977-4f4e-836c-a9c9b704408e.jpeg)
 
