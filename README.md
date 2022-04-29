@@ -12,7 +12,7 @@ The image below is a beautiful illustration I found on twitter which was inspire
 
 @headBONDmeLWJ on twitter!! ![alt text](https://user-images.githubusercontent.com/104568096/165880979-1e87eabb-504b-4780-a7c5-e52ad06a65df.jpg)
 
-Honestly, I cannot stress how much I love this novel. It is so beautiful and the emotions are so strong and the story is confusing at first but it is so worth it to understand. Understanding the different symbolisms of things makes it even better too!! The other books of this author are also so amazing!! If you wish to know more, click [here](https://modao-zushi.fandom.com/wiki/Grandmaster_of_Demonic_Cultivation_Wiki) >:DD
+Honestly, I cannot stress how much I love this novel. It is so beautiful and the emotions are so strong and the story is confusing at first but it is so worth it once you understanad everything. Understanding the different symbolisms of things makes it even better too!! The other books of this author are also so amazing!! If you wish to know more, click [here](https://modao-zushi.fandom.com/wiki/Grandmaster_of_Demonic_Cultivation_Wiki) >:DD
 
 
 ### Eleceed 
