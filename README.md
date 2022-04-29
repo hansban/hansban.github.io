@@ -20,21 +20,17 @@ This is so cool, hands down all I can say. Our main lead is so adorable and good
 
 ![alt text](https://user-images.githubusercontent.com/104568096/165913058-68aab720-6977-4f4e-836c-a9c9b704408e.jpeg)
 
+### Viral Hit
+This is one of my prtty recent reads. It's amazing so far, really had me on my toes. The are is great the characters and plot is great but sometimes the characters are so cringey. For the first part of the webtoon, I had to stop multiple times in-between reads because of _so much_ second-hand embarrassment. It was so bad...well for me atleast. It is so amazing though, really teaches a bunch of fighting styles and I think they consult a few professional fighters. Honesty, this webtoon kind of makes me wanna learn boxing and judo but we'll see if I actually go through with it aha
+
+![alt text](https://user-images.githubusercontent.com/104568096/165979450-a8ac93ef-9a2a-44f7-932d-b2f46a94a070.jpg)
+
+I don't have a decent picture for this but I do have a picture of this guy, Seong Taehun, for you simps who think he's hot and honestly? understandable... so click [here](https://viral-hit.fandom.com/wiki/Viral_Hit_Wiki) if you want so see more of this guy >:)))
 
 
+### Jujutsu Kaisen
+Do I really need to explain? Masterpiece. Magnificent. Ma....gnolia? Mwah. Just absolutely gorgeous. It is so adorable (in the anime) and yet so angsty (recent manga chapters). The artstyle is amazing, the plot is so good, the uniqueness in the character's abilities, and the villains that you hate so much but that's how you know it's good. Truly a work of art plus the author is hilarious too. And for you simps out there, there are hot characters. **very hot**. Want to know more about those hot characters? Click [here](https://jujutsu-kaisen.fandom.com/wiki/Jujutsu_Kaisen_Wiki) you degenerates.
 
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
 
 **Bold** and _Italic_ and `Code` text
 
