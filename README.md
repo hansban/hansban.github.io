@@ -31,6 +31,7 @@ I don't have a decent picture for this but I do have a picture of this guy, Seon
 ### Jujutsu Kaisen
 Do I really need to explain? Masterpiece. Magnificent. Ma....gnolia? Mwah. Just absolutely gorgeous. It is so adorable (in the anime) and yet so angsty (recent manga chapters). The artstyle is amazing, the plot is so good, the uniqueness in the character's abilities, and the villains that you hate so much but that's how you know it's good. Truly a work of art plus the author is hilarious too. And for you simps out there, there are hot characters. **very hot**. Want to know more about those hot characters? Click [here](https://jujutsu-kaisen.fandom.com/wiki/Jujutsu_Kaisen_Wiki) you degenerates.
 
+![jujutsu-kaisen-season-2](https://user-images.githubusercontent.com/104568096/166129808-93fdea74-8559-430e-9f64-34bde9ee96dc.jpg)
 
 **Bold** and _Italic_ and `Code` text
 
